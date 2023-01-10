@@ -1,1 +1,2 @@
 Taylor Garrison
+garrista@oregonstate.edu
